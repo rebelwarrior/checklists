@@ -8,5 +8,5 @@
 ## PT Travel Kit
 
 1. Lacrose Ball
-2. Therapist Stretch Strap
+2. [Therapist Stretch Strap](https://smile.amazon.com/gp/product/B00VTVP98C)
 
